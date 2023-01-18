@@ -1,1 +1,1 @@
-# Jaunais-kalkul-tors-Zir-i
+# Jaunais-kalkulators-Zirni
